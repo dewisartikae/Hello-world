@@ -1,0 +1,1 @@
+Hi, my name is Dewi. I am 29 years old. I work as a medical laboratory technologist. And I want to learn the code because I want to be able to freely work. Understood the code into its own added value and advantage because technology is part of the future.
